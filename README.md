@@ -1,0 +1,6 @@
+# screenshots
+//////SCREENSHOTS FOR IOS APP STORE //////////////
+//////////IPHONE 6.5 INCH/////////////
+//////////IPHONE 5.5 INCH /////////////////
+/////////IPAD PRO 12.9 INCH 5TH GENERATION//////////
+////////IPAD PRO 12.9 2ND GENERATION//////////
